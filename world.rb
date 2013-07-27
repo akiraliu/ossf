@@ -1,2 +1,2 @@
-google plus + lalala
+google plus
 
